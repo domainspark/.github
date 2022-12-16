@@ -1,3 +1,1 @@
-# nouo.com
-# yytu.com
-# cnppp.com
+domain's park
